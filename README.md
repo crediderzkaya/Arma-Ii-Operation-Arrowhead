@@ -226,4 +226,4 @@ ARMA II: Operation Arrowhead is available as a complete free version, providing 
 Ready to experience the thrill of tactical warfare? Download ARMA II: Operation Arrowhead for free today and join the action!
 
 ---
-**Last updated:** 2026-10-05 01:39:16 UTC
+**Last updated:** 2026-10-05 08:28:01 UTC
